@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @damijos
+- 👀 I’m interested in why can't I uninstall REVIT BATCH PROCESSOR from my laptop?
+- I'm worried. somebody should please help me.
+- Thanks.
